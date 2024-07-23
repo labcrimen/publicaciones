@@ -31,3 +31,5 @@
 [Regulación del cannabis: ¿un asunto de seguridad? Entrada y mantenimiento en agenda de un problema de política pública (2014)](http://www.scielo.edu.uy/scielo.php?pid=S1688-499X2014000100005&script=sci_arttext)
 
 [Las claves territoriales de la fractura social urbana: Inseguridad y segregación en Montevideo (2005)] FALTA LINK
+
+[Atrás](https://github.com/labcrimen/labcrimen.github.io/blob/main/README.md?plain=1)
