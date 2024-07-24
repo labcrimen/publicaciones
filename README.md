@@ -32,4 +32,4 @@
 
 [Las claves territoriales de la fractura social urbana: Inseguridad y segregación en Montevideo (2005)] FALTA LINK
 
-[Atrás](https://github.com/labcrimen/labcrimen.github.io/blob/main/README.md?plain=1)
+[**Atrás**](https://labcrimen.github.io/)
