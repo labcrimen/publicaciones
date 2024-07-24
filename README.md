@@ -14,6 +14,8 @@
 
 [Tackling Drug-Lords in a Nascent Market: Raids and Drug Crime in Uruguay (2022)](https://journals.sagepub.com/doi/abs/10.1177/08874034211046985?journalCode=cjpa)
 
+[Crimen y narcotráfico: un análisis exploratorio del caso Uruguay (2022)](https://www.undp.org/es/uruguay/publicaciones/crimen-y-narcotrafico-un-analisis-exploratorio-del-caso-uruguay)
+
 [Legal or not: A comparative analysis of Belgian and Uruguayan Cannabis Social Club members' profile and policy preferences (2022)](https://www.taylorfrancis.com/chapters/edit/10.4324/9781003055679-6/legal-eliana-%C3%A1lvarez-rosario-queirolo-lorena-repetto-mafalda-pardal)
 
 [The Unequal Impact of Natural Light on Crime (2022)](https://link.springer.com/epdf/10.1007/s00148-021-00831-8?sharing_token=cfHvdWLOKXwTV5NzSNzy3fe4RwlQNchNByi7wbcMAY4iy8ye4jfk5x72pU7Ium1fxvXdXUq-ajbU-cTCM-713D9YsAyW8IJJqxlPOgPShAQkerWZfaS8fBvBR4v_tIdww7Huy_9cXqscneLc3rrasKwEjln9HMjf1CLhlB8SzXU%3D)
