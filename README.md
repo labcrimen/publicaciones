@@ -42,6 +42,8 @@
 
 ## 2005 ##
 
+<a href="https://github.com/labcrimen/publicaciones/Bogliaccini_Inseguridad_Final_Diciembre.pdf">Las claves territoriales de la fractura social urbana: Inseguridad y segregación en Montevideo (2005)</a>
+
 [Las claves territoriales de la fractura social urbana: Inseguridad y segregación en Montevideo (2005)] FALTA LINK
 
 [**Atrás**](https://labcrimen.github.io/)
