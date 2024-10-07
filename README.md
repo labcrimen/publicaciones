@@ -10,8 +10,6 @@
 
 [Tesis doctoral: Unveiling Commitments of Silence: Reciprocity Networks and Drug Gangs in Montevideo, Uruguay (2023)](https://doi.org/10.7764/tesisUC/CIP/66914)
 
-[Informe: “En las grietas del Estado: gobernanza criminal en Montevideo, Uruguay con Verónica Pérez Bentancur y Lucía Tiscornia (2023)] FALTA LINK
-
 [Explaining the Impact of Legal Access to Cannabis on Attitudes toward Users (2023)](https://academic.oup.com/ijpor/article-abstract/35/2/edad010/7118416)
 
 ## 2022 ##
